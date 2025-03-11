@@ -1,8 +1,8 @@
-# Elect Kay Friedly to the Troy Ohio City Council
+# Elect Kay Friedly to the Troy City Council
 
 ![Picture of Kay Friedly](kay-smile.jpg)
 
-Kay Friedly will serve on Troy City Council as a Member at Large to represent all citizens of Troy for the betterment and elevation of our city’s stature. Kay’s focus will be guided by:
+Republican and Veteran Kay Friedly will serve on the Troy, Ohio City Council as a Member at Large to represent all citizens of Troy for the betterment and elevation of our city’s stature. Kay’s focus will be guided by:
 
 * Strong Christian values 
 * Constitutional and fiscal conservatism
