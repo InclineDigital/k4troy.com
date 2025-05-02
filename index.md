@@ -16,3 +16,12 @@ Kay Friedly has been a resident of Troy for over 6 years, having been charmed by
 Kay has volunteered for her church, Troy Literacy Council, the Miami County Republican Party, Miami County Liberty, Miami County Park District and at the Troy Strawberry Fesitival for various organizations.
 
 Kay would appreciate your vote in the May 6, 2025 primary election for Troy City Council Member at Large! Thank you for taking the time to read this!
+
+## Learn more about Kay
+
+* [Kay Friedly on Ballotpedia](https://ballotpedia.org/Kay_Friedly_(Troy_City_Council_At-large,_Ohio,_candidate_2025)
+* [Troy Council at-large candidates (Miami Valley Today)](https://miamivalleytoday.com/troy-council-at-large-candidates/)
+* [Meet The Candidate: Kay Friedly](https://www.civiccapacity.com/p/meet-the-candidate-kay-friedly)
+* [Troy Chamber of Commerce virtual forum](https://www.troyohiochamber.com/candidate-forum/)
+
+<iframe src="https://www.youtube.com/embed/YgL2Yi5xwE0?si=dRmbA-NjSZW1gCIt" title="Kay Friedly - Troy Chamber of Commerce Virtual Forum" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen style="    aspect-ratio: 16 / 9; height: auto; width: 100%;"></iframe>
