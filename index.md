@@ -19,7 +19,7 @@ Kay would appreciate your vote in the May 6, 2025 primary election for Troy City
 
 ## Learn more about Kay
 
-* [Kay Friedly on Ballotpedia](https://ballotpedia.org/Kay_Friedly_(Troy_City_Council_At-large,_Ohio,_candidate_2025)
+* <a href="https://ballotpedia.org/Kay_Friedly_(Troy_City_Council_At-large,_Ohio,_candidate_2025">Kay Friedly on Ballotpedia</a>
 * [Troy Council at-large candidates (Miami Valley Today)](https://miamivalleytoday.com/troy-council-at-large-candidates/)
 * [Meet The Candidate: Kay Friedly](https://www.civiccapacity.com/p/meet-the-candidate-kay-friedly)
 * [Troy Chamber of Commerce virtual forum](https://www.troyohiochamber.com/candidate-forum/)
